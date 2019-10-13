@@ -1,2 +1,2 @@
 # Defaces_cuk
-Jangan Lupa baca Bismillah
+Jangan Lupa baca Bismillah ^_^
